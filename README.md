@@ -4,7 +4,7 @@
 - 💞️ I’m lenaing by myself
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
-- ⚡ Fun fact: Im watchin Game of Thrones  
+- ⚡ Fun fact: mid-term is coming closer
 
 <!---
 jokebear011/jokebear011 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
